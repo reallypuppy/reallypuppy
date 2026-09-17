@@ -1,2 +1,4 @@
 hׄi hׄꫀִׄwִwִꪮ̼ꪮ̼ꪮ̼ wִℓᧃׄᨻׁ︩ 
-blob:https://ru.pinterest.com/2ce9ae9f-55e1-436d-a7a6-9013c4ea2c11
+
+<img width="735" height="493" alt="image" src="https://github.com/user-attachments/assets/1542649b-86ca-4adf-b1e7-733c68f5d4a0" />
+
